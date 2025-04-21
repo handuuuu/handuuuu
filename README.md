@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning lot more new things..
 - 💞️ I’m looking to collaborate on learning new things..
 - 😄 Pronouns: A"Noob'..
-- ⚡ Fun fact: Don't waste my time to think about 'Fun'.
+- ⚡ Fun fact: Sleep 4 hous only..!!
 -              
 
 <!---
