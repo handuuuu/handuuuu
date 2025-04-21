@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @handuuuu
-- 👀 I’m interested in to learning lot more thingd about linux..
+- 👀 I’m interested in to learning lot more things about linux...
 - 🌱 I’m currently learning lot more new things..
 - 💞️ I’m looking to collaborate on learning new things..
 - 😄 Pronouns: A"Noob'..
